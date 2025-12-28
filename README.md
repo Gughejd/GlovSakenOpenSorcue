@@ -41,6 +41,3 @@ https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae
 # Duskakarrrrr
 
 https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Dusekkar)
-
--# You have 0 credits left. (Think this is a bug? Run .premium)
-Uploaded to https://pastefy.app/L7k1VHhE/raw
