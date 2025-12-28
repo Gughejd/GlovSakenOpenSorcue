@@ -12,3 +12,35 @@ And customize it Ur own
 
 at this point Just Make ur own Code
 :D
+
+
+# IF UR LAZY 
+
+here all the links! Have Fun :)
+
+ 
+ # veeronica
+ https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Veeronica)
+ 
+# Guest1337
+
+https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Guest1337)
+
+# Shedletsky
+
+https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Shedletsky)
+
+# Chance
+
+https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Chance)
+
+# Two Time
+
+https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(TwoTime)
+
+# Duskakarrrrr
+
+https://gist.githubusercontent.com/gloveringdevting/67624464d0d1f0c753c2d3780fae61b3/raw/GlovSaken%2520(Dusekkar)
+
+-# You have 0 credits left. (Think this is a bug? Run .premium)
+Uploaded to https://pastefy.app/L7k1VHhE/raw
